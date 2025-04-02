@@ -11,3 +11,13 @@ https://github.com/user-attachments/assets/74dfd0a0-747a-469d-910a-03c10a96ec27
 
 
 
+----------------
+![photo_2025-02-25_22-30-02](https://github.com/user-attachments/assets/dfd8efce-b843-4176-b084-b91f556eb265)
+![e71438dd-e0d0-4a6a-8e05-5d962de3fcea](https://github.com/user-attachments/assets/c098994b-c2f9-4e27-8f4d-8c90f3a15510)
+
+--------------
+
+![y](https://github.com/user-attachments/assets/9ad93c34-5b10-4dff-8244-8963424604c3)
+![screenshot-11](https://github.com/user-attachments/assets/1679201d-fc2d-49cb-9329-40662735684b)
+
+
